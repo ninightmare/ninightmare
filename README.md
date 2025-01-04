@@ -7,6 +7,6 @@
   <br>call me whatver you want by skin or other
   <br><br>  
 <b>whisp2int</b>  i am if not always offtab
-<br>i'm always on the personal tab so please whisper
+<br>always on the personal tab
 <br>i do not speak unless spoken too.
 <br>depending on my mood + unless i feel talkative.
