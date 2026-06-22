@@ -13,4 +13,4 @@
   <br>
 <br>◟🟢 - open to chat in whisps. making skins
 <br>◟🌙 - off-tab. working on writing. playing games
-<br>◟❌ - feeling non-verbal. not feeling ok. do not interact unless friend
+<br>◟❌ - feeling non-verbal. overwhelmed. do not interact unless friend
