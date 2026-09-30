@@ -1,7 +1,7 @@
 ## intro
 <p align="center">
 <p align="center">
-<img src="https://64.media.tumblr.com/f33bcc7bd7575c874c82cdf049b21690/f66add86ef451568-11/s100x200/4e8533717e775f7bf8b8383551fab33cf6606bf5.pnj">
+<img src="https://64.media.tumblr.com/4fd9f2af2ec9e6e80a2a69d2b0a3133e/f7818ef95dfe1664-2f/s400x600/84c9a01f66607b5ed4fa913a540f33e8c3b8911b.gifv">
 <p align="center">   
 <b>lotus </b> or whatever you wanna call me (<a href="https://en.pronouns.page/@nnightmare">+</a>)
   <br>call me whatver you want by skin or other
